@@ -27,7 +27,7 @@
 ---
 
 ### 📬 Contact Me
-- **Email:** *(Add your email here)*  
+- **Email:** *(mounamhanae77@gmail.com)*  
 - **LinkedIn:** *(Add your LinkedIn profile)*  
 
 ---
